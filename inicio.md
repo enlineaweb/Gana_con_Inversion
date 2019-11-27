@@ -48,9 +48,6 @@ Registro _ https://tinyurl.com/rp2oega
 __
 Cuenta de Divisas en Internet
 -------------------------
-Cuenta en Bitcoin
-------
-Aprende a usar Bitcoin CURSO GRATIS _ https://tinyurl.com/y9vy32zy
 _________
 Cuenta en Divisas
 -----
