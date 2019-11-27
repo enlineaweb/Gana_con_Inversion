@@ -8,6 +8,9 @@ ___
 Registro _ http://bit.ly/2JFWubV
 ___
 Prueba de transacción fiable por Bitcoin / Factura _ http://bit.ly/34ofOSY
+__
+Prueba de transacción fiable por Paypal / Factura
+https://tinyurl.com/wkx4xcz
 ____________________________
 Emprendeworld
 -----------------
