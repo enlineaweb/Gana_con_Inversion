@@ -42,7 +42,7 @@ Bucksparadise
 - Con éste código gana $0.5
 VDoAbb8fe734e
 ___
-Registro _ https://goo.gl/VrQtXz
+Registro _ https://tinyurl.com/rp2oega
 - (Solo se entra con Facebook)
 __
 Cuenta de Divisas en Internet
