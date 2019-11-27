@@ -47,7 +47,11 @@ Registro _ https://goo.gl/VrQtXz
 __
 Cuenta de Divisas en Internet
 -------------------------
+Cuenta en Bitcoin
+------
 Aprende a usar Bitcoin CURSO GRATIS _ https://tinyurl.com/y9vy32zy
 _________
+Cuenta en Divisas
+-----
 Curso Paypal Gratis _ https://tinyurl.com/yy93dx6h
 ___
