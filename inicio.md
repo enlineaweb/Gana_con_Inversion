@@ -1,4 +1,4 @@
-Registro gratis clic en los enlaces.
+Registro gratis clic en los enlaces. _ Cuentas de divisas al final de este texto.
 _____
 Wberone
 ------------------------
